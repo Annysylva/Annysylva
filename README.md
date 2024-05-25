@@ -12,6 +12,4 @@
 
 <a href="https://wlak0i.mimo.run/index.html" target="_blank"><img src="https://lh3.googleusercontent.com/pw/AP1GczPLadBlqQeHWVx93cmUo-5ZmtWS0y_FIXu0X4g4i30aVXWeheoVhGKlnyGAmBrPHQHmIlOVtlLFtR9LqCdUMATwYi5Y9zrtKSzzoR92UCJPJz1vF3RQMWtN2nMGlh2JDLJxrcKgGXgZRGbQB2I2U219=w1082-h609-s-no-gm?authuser=0style=for-the-badge&logo=instagram&logoColor=white" target="_blank"></a>
 
-![meu_site](https://lh3.googleusercontent.com/pw/AP1GczNZIq_PfL_KVo3xX3-prsK4UaUwk_iG1eVvunxK71DVeTA7d_JW77ZaNggGF7z8MIQ3_H3JWZfOUE1fG5xrfzaRrgwzzMH8HR5kuSXYrg5VEXivNybvdOXBF5DajplHZIQueJkLhGfNP1sEpTQffl0c=w375-h155-s-no-gm?authuser=0)
-
 <a href="https://wlak0i.mimo.run/index.html" target="_blank">Meus Sites!</a>
