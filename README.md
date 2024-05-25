@@ -10,5 +10,5 @@
 
 <a href="https://www.instagram.com/anny_sylva6?igsh=MTFkejdoMGxyOWxlNQ==" target="_blank"><img src="https://img.shields.io/badge/-Instagram-%23E4405F?style=for-the-badge&logo=instagram&logoColor=white" target="_blank"></a>
 
-<a href="https://bio.site/Annysylva" target="_blank"><img src="https://lh3.googleusercontent.com/pw/AP1GczPLadBlqQeHWVx93cmUo-5ZmtWS0y_FIXu0X4g4i30aVXWeheoVhGKlnyGAmBrPHQHmIlOVtlLFtR9LqCdUMATwYi5Y9zrtKSzzoR92UCJPJz1vF3RQMWtN2nMGlh2JDLJxrcKgGXgZRGbQB2I2U219=w1082-h609-s-no-gm?authuser=0style=for-the-badge&logo=instagram&logoColor=white" target="_blank"></a>
+<a href="https://wlak0i.mimo.run/index.html" target="_blank"><img src="https://lh3.googleusercontent.com/pw/AP1GczPLadBlqQeHWVx93cmUo-5ZmtWS0y_FIXu0X4g4i30aVXWeheoVhGKlnyGAmBrPHQHmIlOVtlLFtR9LqCdUMATwYi5Y9zrtKSzzoR92UCJPJz1vF3RQMWtN2nMGlh2JDLJxrcKgGXgZRGbQB2I2U219=w1082-h609-s-no-gm?authuser=0style=for-the-badge&logo=instagram&logoColor=white" target="_blank"></a>
 
