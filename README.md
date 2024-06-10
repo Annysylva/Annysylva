@@ -12,3 +12,4 @@
 
 <a href="https://wlak0i.mimo.run/index.html" target="_blank"><img src="https://lh3.googleusercontent.com/pw/AP1GczPLadBlqQeHWVx93cmUo-5ZmtWS0y_FIXu0X4g4i30aVXWeheoVhGKlnyGAmBrPHQHmIlOVtlLFtR9LqCdUMATwYi5Y9zrtKSzzoR92UCJPJz1vF3RQMWtN2nMGlh2JDLJxrcKgGXgZRGbQB2I2U219=w1082-h609-s-no-gm?authuser=0style=for-the-badge&logo=instagram&logoColor=white" target="_blank"></a>
 
+![cisco_selo](https://images.credly.com/size/340x340/images/68c0b94d-f6ac-40b1-a0e0-921439eb092e/image.png)
